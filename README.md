@@ -1,2 +1,1 @@
-# Rblxsnipe-leaked
-Rblxsniper leaked.
+# roblox-limited-sniper
